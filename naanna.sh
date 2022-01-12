@@ -1,3 +1,2 @@
-hi i am from updated...
 hi ...i am from amazom
 
